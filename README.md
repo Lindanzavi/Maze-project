@@ -1,5 +1,5 @@
 **THE MAZE PROJECT**
-
+https://medium.com/@lindanzavi/the-maze-projec-4adfa239a44f
 
 **BACKGROUND CONTEXT**
 
